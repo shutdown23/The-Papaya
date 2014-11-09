@@ -1,4 +1,0 @@
-The-Papaya
-==========
-
-The Papaya! 
